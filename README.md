@@ -1,0 +1,1 @@
+The PDF file titled Online Store was intended to be a worksheet; however, due to its large size, I captured a screenshot to upload the test instead. Please refer to the "Excel for Data Analytics Assessment" question paper when evaluating the test.
